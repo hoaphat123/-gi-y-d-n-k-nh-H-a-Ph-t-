@@ -1,0 +1,2 @@
+# -gi-y-d-n-k-nh-H-a-Ph-t-
+Nhằm đáp ứng được nhu cầu của khách hàng về việc chống nóng, chống nắng và cách nhiệt, giấy dán kính Hòa Phát đã cung cấp cho khách hàng giấy dán kính chống nắng cách nhiệt. Giấy dán kính chống nóng do công ty Hòa Phát cung cấp luôn đảm bảo cho khách hàng về chất lượng, nguồn gốc của sản phẩm, với đầy đủ các chứng nhận.  #giay_dan_kinh #decal_dan_kinh #dan_kinh_hoa_phat #phim_cach_nhiet
